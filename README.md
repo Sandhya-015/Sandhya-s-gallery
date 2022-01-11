@@ -1,1 +1,1 @@
-# Sandhya-s-gallery
+# Sandhya gallery
